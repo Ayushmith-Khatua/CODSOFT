@@ -1,0 +1,5 @@
+- Python programming codes
+- Intership tasks
+- Hired from CODSOFT
+- April Batch B21
+- Time-line 10 April 2025 to 10 May 2025
